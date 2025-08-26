@@ -38,3 +38,6 @@ Y bueno, eso es todo por ahora. Me gustaría ir actualizando este pequeño READM
 
 > [!IMPORTANT]
 > Sé que no viene mucho al caso, pero recomiendo la serie _Doctor House_ 👨‍⚕️ y la saga de películas de _Rocky_ 🥊.
+
+> [!IMPORTANT]
+> NO me gusta comer ensaladas :triangular_flag_on_post: :triumph:
